@@ -10,3 +10,7 @@ branch vetka2
 
 branch vetka3
 сегодня рпаботаем с гитхабом
+
+xghuhg
+
+dsjgkzhrfaglkh
